@@ -1,0 +1,2 @@
+# Crazy-Idea
+Crazy Stuff
